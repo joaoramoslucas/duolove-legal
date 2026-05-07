@@ -68,7 +68,7 @@ Podemos atualizar esta política periodicamente. Notificaremos sobre mudanças s
 ## 10. Contato
 
 Para dúvidas sobre privacidade ou solicitações sobre seus dados:
-- **Email:** contato@duolove.app
+- **Email:** jaodafan@gmail.com
 
 ---
 
