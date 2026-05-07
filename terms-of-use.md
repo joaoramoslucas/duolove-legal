@@ -93,7 +93,7 @@ Estes termos são regidos pelas leis da República Federativa do Brasil. Qualque
 ## 13. Contato
 
 Para dúvidas sobre estes termos:
-- **Email:** contato@duolove.app
+- **Email:** jaodafan@gmail.com
 
 ---
 
